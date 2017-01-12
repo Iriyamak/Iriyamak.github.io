@@ -1,4 +1,4 @@
 ## Welcome to my Portfolio
 
-You can fint there few my projects.
+You can find there few my projects.
 
